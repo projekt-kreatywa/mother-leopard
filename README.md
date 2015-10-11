@@ -19,7 +19,10 @@
 
 `I'll be the hyena, you'll see.`
 
+[![IMG_7858.JPG](http://img.svbtle.com/sqsggvg17ygcw.jpg)](http://rafszul.svbtle.com/mother-leopard)
+
 <iframe width="640" height="480" src="https://www.youtube.com/embed/U-_Hri6RIQs?rel=0&amp;controls=0&amp;showinfo=0&amp;autoplay=1" frameborder="0" allowfullscreen></iframe>
 
 
 [Enfilade](https://youtu.be/U-_Hri6RIQs)
+
